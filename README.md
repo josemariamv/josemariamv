@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @josemariamv
-- 👀 I’m interested in beers and dance
+- 👀 I’m interested in beers, music and dance
 - 🌱 I’m currently learning everything about life and dreams
 
 <!---
